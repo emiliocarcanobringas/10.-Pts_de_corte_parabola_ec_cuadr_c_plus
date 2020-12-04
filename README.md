@@ -1,0 +1,1 @@
+# 10.-Pts_de_corte_parabola_ec_cuadr_c_plus
